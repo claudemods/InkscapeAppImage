@@ -8,7 +8,4 @@ If you like what I'm doing and want to support me to improve, please consider do
 Buy me a 🍕🥧 https://www.paypal.com/paypalme/claudemods?country.x=GB&locale
 
 
-download 
-https://www.pling.com/p/2257489/
-
 ![inkscape](https://github.com/user-attachments/assets/e9b58d99-b394-42b5-9988-b73ca3881ddb)
